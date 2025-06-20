@@ -1,0 +1,1 @@
+Crows are highly intelligent birds known for their problem-solving skills and complex social structures. They are part of the Corvidae family, which also includes ravens, magpies, and jays. Crows are found all over the world and are known for their adaptability to different environments.
